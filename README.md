@@ -1,5 +1,13 @@
-### Hi there 👋
+### Hi hi
+#### I'm Katie Chamberlain! 
+I'm a sixth year astronomy PhD candidate at UArizona, day by day transitioning to software engineering and data science. 
 
+You can find me on:
+- [Linked In](www.linkedin.com/in/katiechambe)
+- [My website](katiechambe.github.io)
+
+  
+💬 Ask me about gel nails, anime, rocks, and stray kids 🦊
 <!--
 **katiechambe/katiechambe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
