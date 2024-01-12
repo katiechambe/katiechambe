@@ -7,7 +7,7 @@ You can find me on:
 - [My website](https://katiechambe.github.io)
 
   
-💬 Ask me about gel nails, anime, rocks, and stray kids 🦊
+💬 Ask me about gel nails, anime, and stray kids 🦊
 <!--
 **katiechambe/katiechambe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
