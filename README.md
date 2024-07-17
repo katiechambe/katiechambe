@@ -1,6 +1,6 @@
 ### Hi hi ⚡⚡ 
 #### I'm Katie Chamberlain! 
-I'm a sixth year astronomy PhD candidate at UArizona, transitioning to data science & engineering. 
+I'm a PhD Astrophysicist (recently graduated from UArizona), transitioning to industry!
 
 You can find me on:
 - [Linked In](https://www.linkedin.com/in/katiechambe)
