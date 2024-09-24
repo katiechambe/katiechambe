@@ -1,4 +1,4 @@
-### Hi hi ⚡⚡ 
+### Hi ⚡⚡ 
 #### I'm Katie Chamberlain! 
 I'm a PhD Astrophysicist (recently graduated from UArizona), transitioning to industry!
 
